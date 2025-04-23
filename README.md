@@ -68,7 +68,7 @@ I adore fixing real-world issues, streamlining workflows, and building responsiv
 - GitHub: [@Dinesh-manickan](https://github.com/Dinesh-manickan?tab=repositories)  
 - LinkedIn: [linkedin.com/in/dinesh-m-04a392289](https://www.linkedin.com/in/dinesh-m-04a392289/)  
 - Email: dinesh@manickan@gmail.com  
-- Instagram: [@__d.i.n.e.s.h_m]([https://www.instagram.com](https://www.instagram.com/__d.i.n.e.s.h_m/))
+- Instagram: [@__d.i.n.e.s.h_m](https://www.instagram.com/__d.i.n.e.s.h_m/)
 
 ---
 
